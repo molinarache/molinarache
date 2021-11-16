@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @molinarache
+- 👀 I’m interested in Harry Potter, BTS, books, music and coding
+- 🌱 I’m currently learning php and graphic design
+- 📫 How to reach me: https://www.instagram.com/molinarache/
